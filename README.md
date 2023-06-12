@@ -1,1 +1,0 @@
-# KICK-GNR8R-GUI
